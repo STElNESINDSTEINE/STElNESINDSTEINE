@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=STElNESINDSTEINE&color=4F5F22&label=steinesindsteine&style=flat" </p>
 
-<p align="center"> <img src="https://cdn.discordapp.com/attachments/1117503298841346133/1531852396827774987/ezgif.com-gif-maker_3.gif?ex=6a6cb277&is=6a6b60f7&hm=2430abf66a157c36fb8ea902c23957cf641063c28c278dbfcd5e10dfc0b1f234" p>
+<p align="center"> <img src="https://media.discordapp.net/attachments/1117503298841346133/1531852396827774987/ezgif.com-gif-maker_3.gif?ex=6a71f877&is=6a70a6f7&hm=cf8a3f3858b69c245161a9c0fad8515fbcfd85b8c58a4b7368a06fd3a884f69c&=&width=768&height=523" p>
 <p align="center"> <img src="https://pixels.crd.co/assets/images/gallery11/698d2f02.gif?v=29416114"> $\color{#566627}{\textbf{𓈒　　  𝘌𝘷an　　 ೀ　　𝘎𝘳𝘦en　　⑅　 }}$ 　<img src="https://biscuit2.crd.co/assets/images/gallery01/c2e25cb0.gif?v=bd11421d">
 <p align="center"> $\color{#67752F}{\textbf{𝘝ery awkward,　　but I'm still open to interactions!!}}$
 <p align="center"> <img src="https://pixels.crd.co/assets/images/gallery41/b0db3e89.gif?v=29416114"> 　 　 　<a href="https://jermagerm.atabook.org/" title="atabook">𝑨𝒕𝒂𝘣𝘰𝘰𝘬</a>　　　　<a href="https://pruspole.straw.page/" title="strawpage">𝑺𝒕𝒓𝒂𝒘𝘱𝘢𝘨𝘦</a>　　　　<a href="https://rentry.co/pruspole" title="rentry">𝑹𝒆𝒏𝘵𝘳𝘺</a> 　 　 　<a href="https://pronouns.cc/@jermagerm" title="pronounscc">𝑷𝒓𝒐𝘯𝘰𝘶𝘯𝘴𝘤𝘤</a> 　 　 　<img src="https://pixels.crd.co/assets/images/gallery60/4c33332f.gif?v=29416114">
